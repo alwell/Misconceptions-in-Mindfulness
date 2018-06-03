@@ -24,3 +24,7 @@ The unedited original paper is on UEL ROAR:
 Original pitch for TEAN:
 
 [https://alwell.github.io/Misconceptions-in-Mindfulness/Alan_Weller-Presentation-Submission-Form.docx](https://alwell.github.io/Misconceptions-in-Mindfulness/Alan_Weller-Presentation-Submission-Form.docx)
+
+YouuTube sythesized speech version:
+
+[https://youtu.be/6yumN14By34](https://youtu.be/6yumN14By34)
