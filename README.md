@@ -4,7 +4,7 @@ I gave a 30 minute presentation at the 9th TEAN Conference 2018, Birmingham on 1
 
 The original presentation can be found here:
 
-https://haikudeck.com/p/3fbd59086c
+[https://haikudeck.com/p/3fbd59086c](https://haikudeck.com/p/3fbd59086c)
 
 The paper which went with the presentation can be found at the TEAN Storehouse here:
 
