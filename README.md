@@ -8,9 +8,9 @@ The original presentation can be found here:
 
 The paper which went with the presentation can be found at the TEAN Storehouse here:
 
-https://www.cumbria.ac.uk/research/enterprise/tean/teachers-and-educators-storehouse/sharing-ideas/scholarly-papers/
+[https://www.cumbria.ac.uk/research/enterprise/tean/teachers-and-educators-storehouse/sharing-ideas/scholarly-papers/](https://www.cumbria.ac.uk/research/enterprise/tean/teachers-and-educators-storehouse/sharing-ideas/scholarly-papers/)
 
 The unedited original paper can be at UEL ROAR:
 
 
-http://hdl.handle.net/10552/7234
+[http://hdl.handle.net/10552/7234](http://hdl.handle.net/10552/7234)
