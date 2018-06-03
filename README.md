@@ -20,3 +20,7 @@ The unedited original paper can be at UEL ROAR:
 
 
 [http://hdl.handle.net/10552/7234](http://hdl.handle.net/10552/7234)
+
+Original pitch for TEAN:
+
+Misconceptions-in-Mindfulness/Alan_Weller-Presentation-Submission-Form.docx 
