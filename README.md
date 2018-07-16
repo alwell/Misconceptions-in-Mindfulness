@@ -30,5 +30,4 @@ YouTube digital speech version:
 [https://youtu.be/6yumN14By34](https://youtu.be/6yumN14By34)
 
 ### Contact
-
-[http://alwell.github.io/about/](http://alwell.github.io/about/)
+[Contact Zolag](https://docs.google.com/forms/d/e/1FAIpQLSf5lxYq2sVNpwgGuSzN51IMZVEdLB_KhzTKzqvW3hQo9CcZVg/viewform?usp=sf_link)
